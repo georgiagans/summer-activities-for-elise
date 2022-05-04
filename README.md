@@ -1,1 +1,1 @@
-# summer-activities-for-elise
+# Summer Activities For Elise
