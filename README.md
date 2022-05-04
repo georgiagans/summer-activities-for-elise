@@ -1,0 +1,1 @@
+# summer-activities-for-elise
